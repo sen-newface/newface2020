@@ -1,3 +1,4 @@
-wellcome sen-corporation !
+wellcome sen-corporation ! 
+やー
 -------------------------
 
